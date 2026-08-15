@@ -36,5 +36,6 @@
 
 ## 📫 Contact
 - LinkedIn: (https://www.linkedin.com/in/chonlakorn-bualuang-bba1b842a/)
+- Email: chonlakornbualuang@gmail.com
 
 ---
