@@ -35,6 +35,6 @@
 ---
 
 ## 📫 Contact
-- GitHub: (https://github.com/cb41-glitch)
+- LinkedIn: (https://www.linkedin.com/in/chonlakorn-bualuang-bba1b842a/)
 
 ---
